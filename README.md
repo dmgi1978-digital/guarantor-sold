@@ -15,4 +15,4 @@ We’re opening **guarantor.su** to strategic acquisition.
 - P2P marketplaces needing trust layer  
 
 → Not fundraising. Not hiring. **Open to acquisition or partnership.**  
-📩 DM or contact via [Telegram: @your_handle  ](https://guarantor.su/)
+📩 DM or contact via https://guarantor.su/
